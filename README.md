@@ -20,5 +20,5 @@ linkedin profile :- https://www.linkedin.com/in/akshita-solanki-2660a7238
 0️⃣1️⃣ its all about 0's and 1's
 
 
-✨keep learning - keep gaining knowledge - keep growing
+✨keep learning - keep growing
 
