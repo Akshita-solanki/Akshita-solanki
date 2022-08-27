@@ -7,11 +7,11 @@ I'm a second year B.Tech - CSE student
 
 I know to code using programming languages like c,c++ and python
 
-I am also a frontend web depveloper
+I am also a frontend web developer
 
 
 
-I'm really enthusiastic about learing more and more in this field.
+I'm really enthusiastic about learning more and more in this field.
 
 
 linkedin profile :- https://www.linkedin.com/in/akshita-solanki-2660a7238
