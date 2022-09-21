@@ -3,7 +3,7 @@ Hey there!!!
 This is Akshita Solanki
 
 
-I'm a second year B.Tech - CSE student
+I'm a third year B.Tech - CSE student
 
 I know to code using programming languages like c,c++ and python
 
